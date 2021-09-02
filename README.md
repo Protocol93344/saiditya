@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Protocol93344
-- 👀 I’m interested in Cars and Tech
+- 👀 I’m interested in Automobile and Tech
 - 🌱 I’m currently learning Java and Qbasic
 - 📫 How to reach me ;- Discord id :- Protocol93344 #0007
 
