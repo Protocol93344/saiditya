@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @Protocol93344
 - 👀 I’m interested in Automobile and Tech
-- 🌱 I’m currently learning Java and Qbasic
+- 👨‍💻 I’m currently learning Java and Qbasic
+- 🎵 Likes listening to music in free time 
+- ⚽ Enjoys playing outdoor games
 - 📫 How to reach me ;- Discord id :- Protocol93344 #0007
 
 <!---
